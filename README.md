@@ -1,5 +1,5 @@
 # www.mymoviesclan.tk
-Title: "MyMoviesClan.tk: Your Ultimate Destination for Hollywood, Bollywood, South, Anime, and Web Series in Multiple Languages and Resolutions"
+Title: "www.MyMoviesClan.tk: Your Ultimate Destination for Hollywood, Bollywood, South, Anime, and Web Series in Multiple Languages and Resolutions"
 
 Introduction
 
