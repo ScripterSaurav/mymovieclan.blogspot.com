@@ -1,7 +1,5 @@
 # www.mymoviesclan.tk
 
-<img title="repo views" src="https://github.com/ScripterSaurav/mymoviesclan.tk">
-
 Title: "www.MyMoviesClan.tk: Your Ultimate Destination for Hollywood, Bollywood, South, Anime, and Web Series in Multiple Languages and Resolutions"
 
 Introduction
