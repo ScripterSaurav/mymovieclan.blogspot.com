@@ -1,6 +1,6 @@
-# www.mymoviesclan.tk
+# mymoviesclan.blogspot.com
 
-Title: "www.MyMoviesClan.tk: Your Ultimate Destination for Hollywood Movies, Bollywood Movies, South Movies, Japanese, Chinese Anime, Animation Movies, Korean Drama and Web Series in Multiple Languages and Resolutions"
+Title: "MyMoviesClan.blogspot.com: Your Ultimate Destination for Hollywood Movies, Bollywood Movies, South Movies, Japanese, Chinese Anime, Animation Movies, Korean Drama and Web Series in Multiple Languages and Resolutions"
 
 Introduction
 
