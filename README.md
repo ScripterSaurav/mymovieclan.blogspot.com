@@ -1,6 +1,6 @@
-#### https://mymoviesclan.blogspot.com
+#### https://mymovieclan.blogspot.com
 
-Title: "MyMoviesClan.blogspot.com: Your Ultimate Destination for Hollywood Movies, Bollywood Movies, South Movies, Japanese, Chinese Anime, Animation Movies, Korean Drama and Web Series in Multiple Languages and Resolutions"
+Title: "MyMovieClan.blogspot.com: Your Ultimate Destination for Hollywood Movies, Bollywood Movies, South Movies, Japanese, Chinese Anime, Animation Movies, Korean Drama and Web Series in Multiple Languages and Resolutions"
 
 Introduction
 
